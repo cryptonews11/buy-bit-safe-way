@@ -1,1 +1,0 @@
-# buy-bit-safe-way
